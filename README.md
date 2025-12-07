@@ -1,2 +1,3 @@
 # FUCKRAT
-all in @selfdamagedev
+t.me/FuckRatGithub
+ 
